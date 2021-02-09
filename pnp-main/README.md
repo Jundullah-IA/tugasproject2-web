@@ -1,4 +1,4 @@
-# salmanalfarissy26/pnp 
+# jundullah ilhaq
 
 #Tugas Project 2
 
